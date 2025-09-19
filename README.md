@@ -1,1 +1,0 @@
-# smartring_r02_open_code
